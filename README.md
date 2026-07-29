@@ -1,4 +1,4 @@
-<img width="348" height="348" alt="9568" src="https://github.com/user-attachments/assets/ac362e7b-a18a-46b9-bca7-3a089aaa7a64" />
+<img width="348" height="200" alt="9568" src="https://github.com/user-attachments/assets/ac362e7b-a18a-46b9-bca7-3a089aaa7a64" />
 
        taken by my enanan 🩵 y  /  a  ! 
 
