@@ -3,11 +3,11 @@
 
 
  
-   '' sys, ask whos fronting ''
+         '' sys, ask whos fronting ''
 
 
 <img width="600" height="600" alt="9504" src="https://github.com/user-attachments/assets/cc63fb24-8a1a-4565-b25c-79263f98545b" />
 
 
-knen 🩵
+       knen 🩵
     
