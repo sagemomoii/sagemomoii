@@ -20,4 +20,4 @@
 
            i want to keep going, to save more people...!
     
-<img width="200" height="200" alt="9569" src="https://github.com/user-attachments/assets/628abf46-ca23-4c82-ba1a-3f8022b2ef86" />
+<img width="2520" height="200" alt="9569" src="https://github.com/user-attachments/assets/628abf46-ca23-4c82-ba1a-3f8022b2ef86" />
