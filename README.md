@@ -5,9 +5,12 @@
  
          '' sys, ask whos fronting ''
 
+<img width="498" height="16" alt="9564" src="https://github.com/user-attachments/assets/ca1212b9-ec45-401d-910a-73b2970127e8" />
 
 <img width="600" height="600" alt="9504" src="https://github.com/user-attachments/assets/cc63fb24-8a1a-4565-b25c-79263f98545b" />
 
 
-       knen 🩵
+       knen 🩵  enanan   amia   yuki    !   
+
+           i want to keep going, to save more people...!
     
