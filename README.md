@@ -1,4 +1,4 @@
-<img width="427" height="203" alt="9684" src="https://github.com/user-attachments/assets/da2146a6-6bf7-40d8-9930-0905a7aa4396" />
+<img width="498" height="65" alt="9685" src="https://github.com/user-attachments/assets/c6deadcf-152e-47e5-be15-043c98b11ac0" />
 
 
 
@@ -20,8 +20,16 @@
 
 
 
-       knen 🩵  enanan   amia   yuki    !   
+       knen 🩵 aien 🩷   enanan   amia   yuki    !   
 
            i want to keep going, to save more people...!
     
-<img width="2520" height="200" alt="9569" src="https://github.com/user-attachments/assets/628abf46-ca23-4c82-ba1a-3f8022b2ef86" />
+<img width="2520" height="1440" alt="9679" src="https://github.com/user-attachments/assets/34fd1687-352a-4435-82b5-c26eef85918c" />
+
+
+<img width="498" height="44" alt="9682" src="https://github.com/user-attachments/assets/c067a282-9989-4566-a911-a9f96a3a8cd4" />
+
+    kanade fict, chocola fict (doubles iwc)   airi yume (QPR  , void sharing doubles dni) KAngel yume (platonic,  hyper sharing, doubles PLSSS int!!!)
+
+<img width="498" height="44" alt="9682" src="https://github.com/user-attachments/assets/57abaca8-b5d4-4c19-ab85-846f4e345146" />
+
