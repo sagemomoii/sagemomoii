@@ -1,16 +1,20 @@
-<img width="348" height="100" alt="9568" src="https://github.com/user-attachments/assets/ac362e7b-a18a-46b9-bca7-3a089aaa7a64" />
+<img width="427" height="203" alt="9684" src="https://github.com/user-attachments/assets/da2146a6-6bf7-40d8-9930-0905a7aa4396" />
 
-       taken by my enanan 🩵 y  /  a  ! 
 
-<img width="2520" height="1440" alt="9571" src="https://github.com/user-attachments/assets/5b772a1e-8ef8-41a6-a31c-662aacbc6c5d" />
 
-<img width="498" height="16" alt="9564" src="https://github.com/user-attachments/assets/05a99da0-8ffc-4d54-b5a0-68120327e66d" />
+       taken by my enanan 🩷 y  /  a  ! 
+
+<img width="2520" height="1440" alt="9678" src="https://github.com/user-attachments/assets/8168a9d6-70e4-4b74-9bde-e7665cf1c09f" />
+
+<img width="498" height="111" alt="9681" src="https://github.com/user-attachments/assets/3842f074-9c3a-4522-9f9f-c13e1f048d98" />
+
 
 
  
          '' sys, ask whos fronting ''
 
-<img width="498" height="16" alt="9564" src="https://github.com/user-attachments/assets/ca1212b9-ec45-401d-910a-73b2970127e8" />
+<img width="498" height="87" alt="9683" src="https://github.com/user-attachments/assets/001e304d-d955-443d-9a88-8bbe801490d4" />
+
 
  <img width="2520" height="1440" alt="9572" src="https://github.com/user-attachments/assets/f149e694-7358-4d22-9b9b-d521d04397dd" />
 
