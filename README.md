@@ -40,3 +40,6 @@
 <img width="498" height="111" alt="9681" src="https://github.com/user-attachments/assets/dd5722a8-75b0-42d0-9baf-b7ac40b66163" />
 
    <img width="2520" height="1440" alt="9798" src="https://github.com/user-attachments/assets/4789b00a-3b70-4315-8211-ac47141e6920" />
+
+
+       sometimes KAngel near docks (under the tree next to the benches) but mostly airi7 airi at pjsk area lalal
