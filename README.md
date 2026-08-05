@@ -36,3 +36,7 @@
       s  -  ata and strwpg pls for a kiss/j
 
 <img width="720" height="537" alt="9796" src="https://github.com/user-attachments/assets/22e2b965-3919-40c4-88a2-9aa3c2792e63" />
+
+<img width="498" height="111" alt="9681" src="https://github.com/user-attachments/assets/dd5722a8-75b0-42d0-9baf-b7ac40b66163" />
+
+   <img width="2520" height="1440" alt="9798" src="https://github.com/user-attachments/assets/4789b00a-3b70-4315-8211-ac47141e6920" />
