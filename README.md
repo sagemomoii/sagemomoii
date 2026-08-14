@@ -42,4 +42,4 @@
    <img width="2520" height="1440" alt="9798" src="https://github.com/user-attachments/assets/4789b00a-3b70-4315-8211-ac47141e6920" />
 
 
-       sometimes KAngel near docks (under the tree next to the benches) but mostly airi7 airi at pjsk area lalal
+        INTP • 2w1 • so268  (?)
