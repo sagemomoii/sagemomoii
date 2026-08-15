@@ -1,3 +1,8 @@
+<img width="691" height="133" alt="10266" src="https://github.com/user-attachments/assets/945ee0b0-517a-4993-8acc-cb80bd691539" />
+
+       I DIDN'T EXPECT RHIS?? WTF TYSM TO THE ONE KIND SOUL THAT VOTED ME THE LAST NAME HELP MOMOE its okay 
+
+
 <img width="498" height="65" alt="9685" src="https://github.com/user-attachments/assets/c6deadcf-152e-47e5-be15-043c98b11ac0" />
 
 
