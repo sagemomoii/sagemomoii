@@ -3,48 +3,48 @@
        I DIDN'T EXPECT RHIS?? WTF TYSM TO THE ONE KIND SOUL THAT VOTED ME THE LAST NAME HELP MOMOE its okay 
 
 
-<img width="498" height="65" alt="9685" src="https://github.com/user-attachments/assets/c6deadcf-152e-47e5-be15-043c98b11ac0" />
+<img width="2000" height="260" alt="10360" src="https://github.com/user-attachments/assets/0c5ad877-2e79-460d-ab8e-154ede6c74bb" />
+
+<img width="2048" height="2048" alt="10354" src="https://github.com/user-attachments/assets/f8f15826-a420-47d6-8614-64dc479bd349" />
 
 
-
-       taken by my enanan 🩷 y  /  a  ! 
-
-<img width="2520" height="1440" alt="9678" src="https://github.com/user-attachments/assets/8168a9d6-70e4-4b74-9bde-e7665cf1c09f" />
-
-<img width="498" height="111" alt="9681" src="https://github.com/user-attachments/assets/3842f074-9c3a-4522-9f9f-c13e1f048d98" />
-
-
-
- 
-         '' sys, ask whos fronting ''
-
-<img width="498" height="87" alt="9683" src="https://github.com/user-attachments/assets/001e304d-d955-443d-9a88-8bbe801490d4" />
-
-
-<img width="600" height="795" alt="9680" src="https://github.com/user-attachments/assets/81bcf22d-42bc-40cb-b5ef-7df31fe60d73" />
-
-
-
-       knen 🩵 aien 🩷   enanan   amia   yuki    !   
-
-           i want to keep going, to save more people...!
+    airi wl3 card #1 fan! 🩷💚
     
-<img width="2520" height="1440" alt="9679" src="https://github.com/user-attachments/assets/34fd1687-352a-4435-82b5-c26eef85918c" />
+<img width="350" height="11" alt="10356" src="https://github.com/user-attachments/assets/b7db75c1-b1bf-4c39-b528-205c11d21358" />
+
+     taken by the ena to my airi ^ _ ^ knen & airien fan
+
+<img width="350" height="11" alt="10356" src="https://github.com/user-attachments/assets/d451403a-d868-4a67-a207-e5a9ee7d556f" />
 
 
-<img width="498" height="44" alt="9682" src="https://github.com/user-attachments/assets/c067a282-9989-4566-a911-a9f96a3a8cd4" />
+    nearly always offtab / afk in ponytown, w2i pls! c * h enc / freely unless im with friends, then ask ^^
 
-    kanade fict, chocola fict (doubles iwc)   airi yume (QPR  , void sharing doubles dni) KAngel yume (platonic,  hyper sharing, doubles PLSSS int!!!)
-
-<img width="498" height="44" alt="9682" src="https://github.com/user-attachments/assets/57abaca8-b5d4-4c19-ab85-846f4e345146" />
-
-      s  -  ata and strwpg pls for a kiss/j
-
-<img width="720" height="537" alt="9796" src="https://github.com/user-attachments/assets/22e2b965-3919-40c4-88a2-9aa3c2792e63" />
-
-<img width="498" height="111" alt="9681" src="https://github.com/user-attachments/assets/dd5722a8-75b0-42d0-9baf-b7ac40b66163" />
-
-   <img width="2520" height="1440" alt="9798" src="https://github.com/user-attachments/assets/4789b00a-3b70-4315-8211-ac47141e6920" />
+ <img width="2520" height="1440" alt="10350" src="https://github.com/user-attachments/assets/3743d72d-1b34-46ff-8539-292c3a6e2663" />
 
 
-        INTP • 2w1 • so268  (?)
+    airi momoi yume, voidsharing. doubles strictly dni, you will be blocked (friends of doubles too)  kanade fictkin, doubles iwec
+
+<img width="350" height="11" alt="10356" src="https://github.com/user-attachments/assets/265eb871-6164-48eb-9ae3-d20068f98c9d" />
+
+<img width="2520" height="1440" alt="10349" src="https://github.com/user-attachments/assets/c23efa37-df10-47ae-9177-bbf1ae190aaa" />
+
+
+
+     tfc fans dni, same goes for shizuairi/anhane fans that can't shur their fucking mouth about it, stop shoving it down my throat
+
+
+     
+
+<img width="350" height="11" alt="10356" src="https://github.com/user-attachments/assets/a76b0f8d-d8b7-45e2-892a-99a151d91809" />
+
+      estj  2w1 so268 - new to typology / enneagrams soooo yeah
+
+      
+<img width="350" height="11" alt="10356" src="https://github.com/user-attachments/assets/afea942b-ccf8-42fd-9f22-edac7337758d" />
+
+
+          s-ata pls for a kiss trust im joking lallala
+
+
+
+<img width="2520" height="1440" alt="10350" src="https://github.com/user-attachments/assets/9e24d0ac-7d84-489b-bacb-b5ffa810a4d7" />
