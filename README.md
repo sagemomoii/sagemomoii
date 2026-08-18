@@ -39,6 +39,10 @@
 
       estj  2w1 so268 - new to typology / enneagrams soooo yeah
 
+
+![Uploading 10394.png…]()
+
+
       
 <img width="350" height="11" alt="10356" src="https://github.com/user-attachments/assets/afea942b-ccf8-42fd-9f22-edac7337758d" />
 
