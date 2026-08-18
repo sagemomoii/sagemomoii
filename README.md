@@ -1,6 +1,6 @@
-<img width="691" height="133" alt="10266" src="https://github.com/user-attachments/assets/945ee0b0-517a-4993-8acc-cb80bd691539" />
+<img width="720" height="144" alt="10412" src="https://github.com/user-attachments/assets/f4125e4c-fe7f-40b4-a902-3279393c277b" />
 
-       I DIDN'T EXPECT RHIS?? WTF TYSM TO THE ONE KIND SOUL THAT VOTED ME THE LAST NAME HELP MOMOE its okay 
+       I DIDN'T EXPECT RHIS?? WTF TYSM TO THE ONE KIND SOUL THAT VOTED ME ILY
 
 
 <img width="2000" height="260" alt="10360" src="https://github.com/user-attachments/assets/0c5ad877-2e79-460d-ab8e-154ede6c74bb" />
@@ -38,9 +38,6 @@
 <img width="350" height="11" alt="10356" src="https://github.com/user-attachments/assets/a76b0f8d-d8b7-45e2-892a-99a151d91809" />
 
       estj  2w1 so268 - new to typology / enneagrams soooo yeah
-
-
-![Uploading 10394.png…]()
 
 
       
