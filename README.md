@@ -12,4 +12,4 @@
 <img width="720" height="144" alt="10412" src="https://github.com/user-attachments/assets/1c727756-eadd-4257-9621-7bc1a2d25ba2" />
 <img width="459" height="25" alt="10415" src="https://github.com/user-attachments/assets/d89bacd1-acbf-456d-9af1-a942afa8727e" />
 
-stinky layouts creds to milo (https://github.com/togawapiano)
+stinky layouts creds to [milo](https://github.com/togawapiano)
